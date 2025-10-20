@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Samrat Deula
 **A passionate Software Engineer from nepal**
 
-Email Me 👉 ✉️ **alamimran613@live.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **samratdeula461@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** Enter your project info here
 - 🌱 **I’m currently learning:** Enter your tech here
