@@ -5,9 +5,8 @@ Email Me 👉 ✉️ **samratdeula461@gmail.com** For Collaboration/Project or A
 
 - 🔭 **I’m currently working on: An appointment booking system
 - 🌱 **I’m currently learning: Typescript 
-- 📫 **How to reach me:samratdeula461@gmail.com
-- 😄 **Pronouns:** Imran Sir
-- ⚡ **Fun fact:** I Love Tech and Tech Love Me
+- 📫 **How to reach me: samratdeula461@gmail.com
+- ⚡ **Fun fact about me: I love travelling
 
 
 ## 🏆 GitHub Trophies
