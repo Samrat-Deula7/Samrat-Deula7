@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Samrat Deula
-**A passionate Software Engineer from Nepal U+1F1F3 and U+1F1F5**
+**A passionate Software Engineer from Nepal **
 
 Email Me 👉 ✉️ **samratdeula461@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
